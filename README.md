@@ -1,3 +1,2 @@
-# learning
-个人的学习用仓库
-欢迎大佬到此一游
+"Embrace each day as a new opportunity to learn, grow, and become the best version of yourself."
+
